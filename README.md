@@ -1,0 +1,1 @@
+# ENADORI_GETTER
